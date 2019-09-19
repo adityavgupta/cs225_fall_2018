@@ -1,0 +1,1 @@
+For the most part, he thought of pursuing computer security just because it was a field he thought was interesting. He had talked to seniors who had chosen to pursue security and from their experience he wished to explore the possibilities that lay in the field. With that he ended his chain of thought and resumed working on the pile of HW he had.
